@@ -1,4 +1,4 @@
-### From Brazil
+### Computer Science student from Brazil
 
 <h4 align="left"> Main languages and tools: </h4>
 
